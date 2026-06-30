@@ -1,2 +1,0 @@
-# ordinario-
-codigos 
